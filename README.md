@@ -1,1 +1,2 @@
 Stacey Cattell
+cattells@oregonstate.edu
